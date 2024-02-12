@@ -1,0 +1,1 @@
+# as-s-simple.github.io
